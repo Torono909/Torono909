@@ -10,4 +10,4 @@ Hi I'm Torono909 I like to code plugins, mods, clients and more shit!
 
 # Contacts
 
-Horizon#2957
+kozyy_da_indianman (@discord)
